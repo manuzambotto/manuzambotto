@@ -7,3 +7,10 @@
 
 🫥🙄🙄🙄🙄
 🤞🤞🎈🎈🎭🎭🛝🌭🍔🍕🚐🚐🚐🚐🚙🛻❤️‍🔥❤️‍🩹
+sou esdutante do alura 
+
+boa visita ao meu perfi
+https://scratch.mit.edu/projects/1003033348
+https://editor.p5js.org/MZS1090/full/7i-zG-9TL
+https://editor.p5js.org/000109092980/full/LVnu0n2_C
+https://editor.p5js.org/MZS1090/full/s1aYcpKsK
